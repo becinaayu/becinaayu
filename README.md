@@ -15,7 +15,7 @@
 </p>
 
 <p align="left">
-  💌 Entre em contato com aqui: ⤵️
+  💌 Entre em contato aqui: ⤵️
 </p>
 
   <a href="https://www.linkedin.com/in/beatriz-dantas-sampaio-4a6810288?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app" alt="LinkedIn">
